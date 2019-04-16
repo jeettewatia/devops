@@ -1,3 +1,3 @@
 # devops
-I am Jeet Tewatia.
+I am tushar karan.
 I belong to ballabgarh , faridabad.
